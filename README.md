@@ -4,4 +4,6 @@ I'm Akshitaa, a Data Science and Business student passionate about leveraging da
 
 Outside of work, I enjoy reading 📖, traveling ✈️, and capturing the world around me 📷. 
 
+Want to get in contact? Email me at akshitaabalasai@gmail.com
+
 Let's connect: https://www.linkedin.com/in/akshitaabalasai/
